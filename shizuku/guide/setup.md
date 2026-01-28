@@ -163,4 +163,5 @@ Don't click the dialog shows after connecting the USB, because it will change US
 
 ### Start via root: cannot start on boot
 
-Please allow Shizuku to run in the background.
+Please allow Shizuku to run in the background./(anot)./kkl): https/.😞.300:.auto/aim./500!esp!'360'
+./aim/! !RVENG-3D_KEY!/(RVENG_MOD)!! https/HT
